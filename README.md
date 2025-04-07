@@ -14,4 +14,4 @@
 Coming soon... (working on my first GitHub project!)
 
 ## 📫 Connect with Me
-[LinkedIn](linkedin.com/in/suresh-babu-a15b232b7) | [Email](mailto:boyasuresh1102@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/suresh-babu-a15b232b7) | [Email](mailto:boyasuresh1102@gmail.com)
